@@ -1,1 +1,1 @@
-https://ifimust.app/
+https://dejan-zalik.github.io/ifimust/
